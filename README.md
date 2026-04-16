@@ -13,5 +13,7 @@ saya tertarik dengan dunia teknologi dan ingin terus belajar hal baru
 
 ## Hobi
 -Bermain bola voli 
+
 -main hp
+
 -jajan 
